@@ -7,7 +7,7 @@
 -   💬 Ask me about anything, life?
 -   📫 How to reach me: [instagram](https://www.instagram.com/davidiskim/) | [Email](mailto:davidjrkims@gmail.com)
 -   😄 Pronouns: cisgender?
--   ⚡ Fun fact: "currently" I only finifed elementary
+-   ⚡ Fun fact: "currently" I only finifed elementary, oh and my Korean is almost perfect
 
 ### Connect with me:
 
