@@ -6,7 +6,7 @@
 -   🤔 I’m looking for help with yeah making video games 😂
 -   💬 Ask me about anything, life?
 -   📫 How to reach me: [instagram](https://www.instagram.com/davidiskim/) | [Email](mailto:davidjrkims@gmail.com)
--   😄 Pronouns: cisgender?
+-   😄 Pronouns: cisgender-man?
 -   ⚡ Fun fact: "currently" I only finifed elementary, oh and my Korean is almost perfect
 
 ### Connect with me:
