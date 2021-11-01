@@ -6,7 +6,6 @@
 -   🤔 I’m looking for help with yeah making video games 😂
 -   💬 Ask me about anything, Turtles! I love turtles ❤
 -   📫 How to reach me: [instagram](https://www.instagram.com/davidkimsucks/) | [Email](mailto:davidjrkims@gmail.com)
--   [<a href="https://github.com/davidjrkim/larakimbab" target="_blank">click me</a>]
 -   😄 Pronouns: he/him
 -   ⚡ Fun fact: "currently" I only finished elementary, oh and I'm half Korean and half Russian
 
