@@ -6,7 +6,7 @@
 -   🤔 I’m looking for help with... yeah making video games 😂
 -   💬 Ask me about anything, Turtles! I love turtles ❤
 -   📫 How to reach me: [instagram](https://www.instagram.com/davidkimsucks/) | [Email](mailto:davidjrkims@gmail.com)
--   ⚡ Fun fact: "currently" I only finished elementary, oh and I'm half Korean and half Russian
+-   ⚡ Fun fact: I'm half Korean and half Russian
 
 ### Connect with me:
 
