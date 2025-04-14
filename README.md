@@ -1,9 +1,8 @@
 ### Hi there 👋 I'm David aka usain_turtle
 
--   🔭 I’m currently working on a web site for my parents you can check it out [larakimbab](https://github.com/davidjrkim/larakimbab)
+-   🔭 I’m currently working on a website for my parents, you can check it out [larakimbab](https://github.com/davidjrkim/larakimbab)
 -   🌱 I’m currently learning {Java} {JavaScript} and {C#}
--   👯 I’m looking to collaborate on Making an indie game, a team i mean... no i meant do you wanna join my team?
--   🤔 I’m looking for help with... yeah making video games 😂
+-   👯 I’m looking to collaborate on making an indie game
 -   💬 Ask me about anything, Turtles! I love turtles ❤
 -   📫 How to reach me: [instagram](https://www.instagram.com/davidkimsucks/) | [Email](mailto:davidjrkims@gmail.com)
 -   ⚡ Fun fact: I'm half Korean and half Russian
